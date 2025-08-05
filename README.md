@@ -1,10 +1,10 @@
 # 💫 About Me:
 ## I'm Bas the gay alien that pretending to be a straight guy developer<br><br>
-🤌Computer Science Human at home<br>
-🤌Design Student at youtube screen<br>
+Computer Science Human at home<br>
+Design Student at youtube screen<br>
 🕶I create a website to tell my friends Mark that i can be everything i want<br>
 🏋🏻I make a video "Accept the truth i'm just a little gay guy in the fighter world. so please be kind" just kidding... maybe<br>
-🥷🏼here my instragram you can put in porn categories and stop ewwww-ing or i punch you in Boggo voice <br>
+here my instragram you can put in porn categories and stop ewwww-ing or i punch you in Boggo voice <br>
 
 
 ## 🌐 Socials:
