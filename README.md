@@ -1,5 +1,5 @@
 # 💫 About Me:
-## I'm Bas the gay alien that pretending to be a straight guy developer<br><br>
+## I'm Bas <br><br>
 Computer Science Human at home<br>
 Design Student at youtube screen<br>
 🕶I create a website to tell my friends Mark that i can be everything i want<br>
